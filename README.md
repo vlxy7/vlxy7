@@ -16,7 +16,7 @@
 
  hi! sophomore @ UBC studying cognitive systems in the faculty of science! 
 
- avid reader, music enthusiast, professional overthinker, realistic dreamer...
+ avid reader, music enthusiast, professional overthinker, realistic dreamer....
 
  
 
