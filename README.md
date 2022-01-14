@@ -14,7 +14,7 @@
 - 😄 Pronouns: she/her 
 - ⚡ Fun fact:  -->
 
- hi! sophomore @ UBC studying cognitive systems in the faculty of science! 
+ hi! sophomore @ UBC studying cognitive systems in the faculty of science!! 
 
  hackathon organizer @ nwPlus, avid reader, music enthusiast, professional overthinker, realistic dreamer!!!!!
 
