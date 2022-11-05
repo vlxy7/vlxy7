@@ -16,7 +16,7 @@
 
  hi! sophomore @ UBC studying cognitive systems in the faculty of science!! 
 
- hackathon organizer @ nwPlus, avid reader, music affectionado and design enthusiast!
+ hackathon organizer @ nwPlus, avid reader, music affectionado and design enthusiast!!
 
 
  
